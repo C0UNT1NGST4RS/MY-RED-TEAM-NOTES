@@ -1,0 +1,1 @@
+https://ardent101.github.io/    - read this fully to understand Kerbos properly [ only if you want to become a specialist ]
